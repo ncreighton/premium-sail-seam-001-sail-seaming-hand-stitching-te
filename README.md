@@ -1,0 +1,2 @@
+# premium-sail-seam-001-sail-seaming-hand-stitching-te
+Tired of inconsistent tension ruining your hand-stitched sail seams? Every loose or tight stitch compromises your work's integrity—and your safety at sea.  The Sail Seaming Hand Stitching Tension Log is the first Notion template crafted specifically for sailmakers and marine craftspeople. It eliminates guesswork by letting you document and replicat
